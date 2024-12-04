@@ -2,7 +2,7 @@
 layout: post
 title:  The Minangkabau
 date:   2024-12-01 15:01:35 +0300
-image:  06.jpg
+image:  Minangkabau.jpg
 tags:   Matrilineal
 ---
 Yeah, and if you were the pope they'd be all, "Straighten your pope hat." And "Put on your good vestments." Noooooo! Perhaps, but perhaps your civilization is merely the sewer of an even greater society above you!
