@@ -2,7 +2,8 @@
 layout: post
 title:  "The Mosuo People"
 date:   2024-12-01 18:05:55 +0300
-image:  10.jpg
+image:  ![Mosuo](https://github.com/user-attachments/assets/7b52560b-e243-46e6-a277-fd3efb2cd74d)
+
 tags:   Matrilineal
 ---
 You’ll find this post in your `_posts` directory. Go ahead and edit it and re-build the site to see your changes. You can rebuild the site in many different ways, but the most common way is to run `jekyll serve`, which launches a web server and auto-regenerates your site when a file is updated.
