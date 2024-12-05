@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  The Tuareg
-date:   2024-12-03 15:01:35 +0300
+date:   2024-12-06 15:01:35 +0300
 image:  Tuareg.jpg
 tags:   Matrilineal
 ---
