@@ -2,7 +2,7 @@
 layout: post
 title:  This week
 date:   2024-12-02 15:01:35 +0300
-image:  matriarchy.jpg
+image:  matriarchy2.jpg
 tags:   Matrilineal
 ---
 This week we will explore matrilineal societies around the world and how their religion influences their culture. 
