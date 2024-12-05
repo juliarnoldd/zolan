@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Mosuo People"
-date:   2024-12-01 18:05:55 +0300
+date:   2024-12-02 18:05:55 +0300
 image: Mosuo.jpg
 tags:   Matrilineal
 ---
