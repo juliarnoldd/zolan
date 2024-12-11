@@ -58,11 +58,11 @@ By reading the chapter titled “The Qur’an and Woman,” it became clear to m
 
 However, this answer didn’t exactly satisfy me. When thinking about the depiction of women in the Qur’an, I do believe there are examples that demonstrate how they are theoretically equal with men. Yet, after doing my research, it is clear that this is not shown in practice. 
 
-In fact, the treatment of women often lies in the interpretation of Allah’s word derived by each individual community. The traditional and conservative notion that women are expected to care for the home and serve not only their children, but their husbands plays a very large role in perpetuating the conceived role that women are supposed to play in Muslim society. 
+In fact, the treatment of women often lies in the interpretation of Allah’s word derived by each individual community. The traditional and conservative notion that women are expected to care for the home and serve not only their children, but their husbands as well, plays a very large role in perpetuating the conceived gender roles that women are supposed to adhere to in Muslim society. 
 
 The Code of Hammurabi is an example of this effect, whereas it allots certain benefits to men and also restricts the rights of women. The rights of Arab women, in practice, are restricted in almost all facets of life. 
 
-In many places they can’t:
+In many places they can’t even:
 
 -	Travel freely outside the household
 -	Own an ATM card
