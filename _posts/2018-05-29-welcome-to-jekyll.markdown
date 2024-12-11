@@ -15,6 +15,8 @@ It is remarkable to think about is how a system like this can still exist in a l
 
 As we saw with the Minangkabau people, there are certain qualities that define each matrilineal society. For the Mosuo, they have a distinct practice surrounding children and relationships. In fact, while in many countries around the world the practice of monogamy is the standard, that is not the case for the Mosuo.
 
+### Walking Marriage ###
+
 They practice what are known as walking marriages, whereas Mosuo females can choose their lovers and have as many or as few as they want in their lifetime. They do not have any words equivalent to *husband* or *father* like we have in english terms. Instead, if they decide to have a long-term partner (that is by no means permanent), they are known as *axias*. These men will fish, take care of animals, and care for their own families before going to visit their women (and sometimes children) at nighttime. They are allowed to visit women for a night of pleasure, but then are expected to leave in the morning. 
 
 On top of that, babies are reared exclusively in the woman’s family as men are not expected to support their children. In fact, it is not uncommon for children to be unaware of who their father is. 
