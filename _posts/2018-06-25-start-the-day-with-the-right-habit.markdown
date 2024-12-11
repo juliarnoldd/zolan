@@ -48,6 +48,28 @@ Some of the men’s duties include:
 
 Additionally, men take on responsibilities outside the home, including acting as leaders and role models in their daily lives, demonstrating behaviours that align with the teachings of Islam, and exhibiting resourcefulness and intelligence.
 
+Women, on the other hand, are given the opportunity to have active roles in both domestic and public domains of life in Minangkabau society. Their duties include caring for children, supporting their spouse and their siblings, but also contributing to their family’s financial well-being. 
+
+### What does this all mean in relation to the Islamic faith?
+
+In attempting to gain more knowledge on how gender is approached in Minangkabau culture in relation to their devotion to Islam, I decided to look to **The Oxford Handbook of Islam and Women** to ground my knowledge on the Muslim faith. 
+
+By reading the chapter titled “The Qur’an and Woman,” it became clear to me that gender roles in the Qur’an can be traced back to the understanding of women in relation to men. This text explains that God has intimacy with both men and women, and that female figures like Mary, Bilqis, and Zulaykha demonstrate the importance of women in the Muslim faith.
+
+However, this answer didn’t exactly satisfy me. When thinking about the depiction of women in the Qur’an, I believe there are examples that demonstrate how they are theoretically equal with men. Yet, after doing my research, it is clear that this is not shown in practice. 
+
+In fact, the treatment of women often lies in the interpretation of Allah’s word derived by each individual community. The traditional and conservative notion that women are expected to care for the home and serve not only their children, but their husbands plays a very large role in perpetuating the conceived role that women are supposed to play in Muslim society. 
+
+The Code of Hammurabi is an example of this effect, whereas it allots certain benefits to men and also restricts the rights of women. The rights of Arab women, in practice, are restricted in almost all facets of life. 
+
+In many places they can’t:
+
+-	Travel freely outside the household
+-	Own an ATM card
+
+Therefore, while the Qur’an acknowledges the biological and anatomical differences between men and women, it does not use those characteristics to define the treatment of each gender. The application of gender roles in Muslim society therefore falls onto the interpretation of religious teachings – something that has so deeply been engrained into the cultural identity rooted in patriarchy. 
+
+Then, when we think about the Minangkabau and how they maintain a faith rooted in Islamic teaching and the Qur’an, we can simply understand that it is their interpretation of these texts and principles that differ from many other cultural contexts, not the actual Qur’anic teachings themselves. 
 
 
 
