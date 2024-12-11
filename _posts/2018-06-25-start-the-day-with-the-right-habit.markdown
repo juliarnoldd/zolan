@@ -52,7 +52,7 @@ Women, on the other hand, are given the opportunity to have active roles in both
 
 ### What does this all mean in relation to the Islamic faith?
 
-In attempting to gain more knowledge on how gender is approached in Minangkabau culture in relation to their devotion to Islam, I decided to look to **The Oxford Handbook of Islam and Women** to ground my knowledge on the Muslim faith. 
+In attempting to gain more knowledge on how gender is approached in Minangkabau culture in relation to their devotion to Islam, I decided to look to ***The Oxford Handbook of Islam and Women*** to ground my knowledge on the Muslim faith. 
 
 By reading the chapter titled “The Qur’an and Woman,” it became clear to me that gender roles in the Qur’an can be traced back to the understanding of women in relation to men. This text explains that God has intimacy with both men and women, and that female figures like Mary, Bilqis, and Zulaykha demonstrate the importance of women in the Muslim faith.
 
