@@ -7,7 +7,7 @@ tags:   Matrilineal
 ---
 Hi friends, continuing on with our discussion about Matrilineal societies, today we have the privilege of exploring the intricacies of the **Mosuo people of China**. 
 
-##The Kingdom of Women##
+## The Kingdom of Women ##
 
 Isolated from other civilisation, the Mosuo people live on the banks of Lugu Lake in China – a remote region that is a 6 hour drive from the nearest city. 
 It is remarkable to think about is how a system like this can still exist in a land where patriarchy is rooted so deep that a male-dominated mentality has taken over and produced a skewed birth rate of roughly 120 boys to 100 girls in today’s age. 
