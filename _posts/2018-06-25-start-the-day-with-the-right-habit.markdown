@@ -35,7 +35,8 @@ Gender equality is something that is seen as more accessible in matrilineal soci
 
 What makes places like this so impressive to me is their ability to actively fight the gender norms that plague the rest of the world, and even find a way to balance the expectations of their religious affiliations with the way they believe society should be set up. 
 
-![Logo](/images/https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FMinangkabau_people&psig=AOvVaw3pOpoWXcW3iBtc_PhybSp0&ust=1733973248618000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPDxmO_fnooDFQAAAAAdAAAAABAJ)
+![]({{ site.baseurl }}/images/Minangkabau-wedding.jpg)
+*Wedding*
 
 Most importantly, they are not taking away from the importance of men. It has been well documented that men are equally as significant when it comes to customary or familial issues, and their input is still valued. 
 
