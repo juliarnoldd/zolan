@@ -23,7 +23,7 @@ Even further, inheritance plays a large role in the establishment of matrilineal
 
 To explain, the distribution of inheritance is organized into two categories: ***pusako tinggi*** and ***pusako randah***.
 
-***Pusako tinggi*** is known as high inheritance. This form is of inheritance is passed down from generation to generation from the Mamak – or mother’s brothers, to their nieces. 
+***Pusako tinggi*** is known as high inheritance. This form is of inheritance is passed down from generation to generation from the *Mamak* – or mother’s brothers, to their nieces. 
 
 ***Pusako randah*** is known as low inheritance. In this system, inheritance is inherited from parents or passed down through grants to children and is divided based on Islamic law. 
 
