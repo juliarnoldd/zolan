@@ -29,7 +29,8 @@ Pusako randah is known as low inheritance. In this system, inheritance is inheri
 
 The involvement of women in handling inheritance is mandatory and it actually cannot proceed without them. For example, if a husband were to attempt property acquisition, they would not be able to do so without their wife.
 
- ### Minangkabau and the power to promote gender equality
+### Minangkabau and the power to promote gender equality
+
 Gender equality is something that is seen as more accessible in matrilineal societies. This can be for various reasons, but rests mostly on the importance surrounding women and the value that is placed on them in these societies. When thinking about women in relation to the more mainstream cultural tendencies of other places around the world, women have historically been pushed to the margins. 
 What makes places like this so impressive to me is their ability to actively fight the gender norms that plague the rest of the world, and even find a way to balance the expectations of their religious affiliations with the way they believe society should be set up. 
 Most importantly, they are not taking away from the importance of men. It has been well documented that men are equally as significant when it comes to customary or familial issues, and their input is still valued. 
