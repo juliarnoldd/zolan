@@ -35,6 +35,8 @@ Gender equality is something that is seen as more accessible in matrilineal soci
 
 What makes places like this so impressive to me is their ability to actively fight the gender norms that plague the rest of the world, and even find a way to balance the expectations of their religious affiliations with the way they believe society should be set up. 
 
+Minangkabau-wedding.jpg
+
 Most importantly, they are not taking away from the importance of men. It has been well documented that men are equally as significant when it comes to customary or familial issues, and their input is still valued. 
 
 Some of the men’s duties include:
