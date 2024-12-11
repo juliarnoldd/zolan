@@ -38,6 +38,7 @@ Some of the men’s duties include:
 -	Fulfilling the duty of a husband, family leader and supervisor
 -	Protector and guardian of his sister’s assets 
 -	Caring for his sibling’s nephews
+
 Additionally, men take on responsibilities outside the home, including acting as leaders and role models in their daily lives, demonstrating behaviours that align with the teachings of Islam, and exhibiting resourcefulness and intelligence.
 
 
