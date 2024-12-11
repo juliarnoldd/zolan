@@ -21,11 +21,11 @@ Additionally, the residence pattern is matrilocal or dwi-local – whereas the f
 
 Even further, inheritance plays a large role in the establishment of matrilineality in their culture.
 
-To explain, the distribution of inheritance is organized into two categories: pusako tinggi and pusako randah.
+To explain, the distribution of inheritance is organized into two categories: ***pusako tinggi*** and ***pusako randah***.
 
-Pusako tinggi is known as high inheritance. This form is of inheritance is passed down from generation to generation from the Mamak – or mother’s brothers, to their nieces. 
+***Pusako tinggi*** is known as high inheritance. This form is of inheritance is passed down from generation to generation from the Mamak – or mother’s brothers, to their nieces. 
 
-Pusako randah is known as low inheritance. In this system, inheritance is inherited from parents or passed down through grants to children and is divided based on Islamic law. 
+***Pusako randah*** is known as low inheritance. In this system, inheritance is inherited from parents or passed down through grants to children and is divided based on Islamic law. 
 
 The involvement of women in handling inheritance is mandatory and it actually cannot proceed without them. For example, if a husband were to attempt property acquisition, they would not be able to do so without their wife.
 
