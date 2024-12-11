@@ -67,7 +67,7 @@ In many places they can’t even:
 -	Travel freely outside the household
 -	Own an ATM card
 
-Therefore, while the Qur’an acknowledges the biological and anatomical differences between men and women, it does not use those characteristics to define the treatment of each gender. The application of gender roles in Muslim society therefore falls onto the interpretation of religious teachings – something that has so deeply been engrained into the cultural identity rooted in patriarchy. 
+So, while the Qur’an acknowledges the biological and anatomical differences between men and women, it does not use those characteristics to define the treatment of each gender. The application of gender roles in Muslim society therefore falls onto the **interpretation** of religious teachings – something that has so deeply been engrained into the cultural identity rooted in patriarchy. 
 
 Then, when we think about the Minangkabau and how they maintain a faith rooted in Islamic teaching and the Qur’an, we can simply understand that it is their interpretation of these texts and principles that differ from many other cultural contexts, not the actual Qur’anic teachings themselves. 
 
