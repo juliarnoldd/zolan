@@ -71,5 +71,5 @@ Therefore, while the Qur’an acknowledges the biological and anatomical differe
 
 Then, when we think about the Minangkabau and how they maintain a faith rooted in Islamic teaching and the Qur’an, we can simply understand that it is their interpretation of these texts and principles that differ from many other cultural contexts, not the actual Qur’anic teachings themselves. 
 
-
+These things make you reflect on the nuance of religion, and I hope learning about places like this help you ask important questions about the society around you. We can all make a choice in how we want to interpret our own religiousity, so why not choose one where women are empowered instead of marginalized?
 
