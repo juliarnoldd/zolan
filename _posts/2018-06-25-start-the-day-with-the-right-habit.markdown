@@ -9,7 +9,7 @@ tags:   Matrilineal
 ### What is it really?
 As I previously touched on, matrilineality is a relatively rare social structure that exists in today’s reality. These systems exist throughout different cultural contexts around the world, with each one having distinct social values and religious backgrounds. 
 
-One of the largest matrilineal societies that exists today are the Minangkabau of West Sumatra, Indonesia. 
+One of the largest matrilineal societies that exists today are the **Minangkabau of West Sumatra, Indonesia**. 
 
 In my research, there were many aspects of their culture that interested me, and I found that their relationship to the Islamic faith to be very distinctive and unique. In fact, exploring the way they balance Islamic traditions that are predominantly based on patriarchal systems while upholding a matrilineal society that values women and places them at the centre of social life is fascinating. 
 
