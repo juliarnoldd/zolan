@@ -5,7 +5,9 @@ date:   2024-12-02 18:05:55 +0300
 image: Mosuo.jpg
 tags:   Matrilineal
 ---
-Hi friends, continuing on with our discussion about Matrilineal societies, today we have the privilege of exploring the intricacies of the **Mosuo people of China**. 
+Hi friends!
+
+Continuing on with our discussion about Matrilineal societies, today we have the privilege of exploring the intricacies of the **Mosuo people of China**. 
 
 ## The Kingdom of Women ##
 
