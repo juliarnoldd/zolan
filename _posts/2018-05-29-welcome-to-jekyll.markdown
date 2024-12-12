@@ -2,7 +2,7 @@
 layout: post
 title:  "The Mosuo People"
 date:   2024-12-04 18:05:55 +0300
-image: Mosuo.jpg
+image: mosuowomen.jpg
 tags:   Matrilineal
 ---
 Hi friends!
