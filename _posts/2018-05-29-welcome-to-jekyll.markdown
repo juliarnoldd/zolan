@@ -38,7 +38,7 @@ These practices can be seen as unique to Westerner eyes, but also in the eyes of
 To explain, the Mosuo follow two religions – Tibetan Buddhism and Daba – their native religion involving animism and ancestor worship.
 Tibetan Buddhism is by far the predominant religion practiced by the Mosuo people, with Daba coming into play primarily for the maintenance of Mosuo culture and language. 
 
-However, what is interesting is that historically, studies have shown that in Tibetan Buddhism is primarily based on patriarchal societal norms. These societal norms include a lack of control for women in many spheres of life, with aspects like hierarchal structure prevailing – meaning that monks ultimately have more authority than nuns. 
+Although, what is interesting is that historically, studies have shown that in Tibetan Buddhism is primarily based on patriarchal societal norms. These societal norms include a lack of control for women in many spheres of life, with aspects like hierarchal structure prevailing – meaning that monks ultimately have more authority than nuns. 
 
 Other themes frequently described by women are:
 -	Bodily Suffering
@@ -49,7 +49,7 @@ Therefore, while Tibetan Buddhism is practiced by the Mosuo, with women carrying
 
 This can be seen in many ways around Mosuo society, with women having economic independence, control over property and wealth, and even personal autonomy in choosing a partner as marriage is not pressured upon them. They also hold more central roles in religious and spiritual practices – something that is traditionally reserved for monks.
 
-Therefore, we see resistance to traditional gender roles in Mosuo society through their ability to empower women. While they do engage in Tibetan Buddhist traditions, their ability to maintain their own customs of women in control over family structures, property and spiritual practices, shows their strength in community values and is a clear representation of why they have survived for so long 
+And so, we see resistance to traditional gender roles in Mosuo society through their ability to empower women. While they do engage in Tibetan Buddhist traditions, their ability to maintain their own customs of women in control over family structures, property and spiritual practices, shows their strength in community values and is a clear representation of why they have survived for so long 
 
 
 
