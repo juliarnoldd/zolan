@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  The Minangkabau
-date:   2024-12-04 15:01:35 +0300
+date:   2024-12-01 15:01:35 +0300
 image:  Minangkabau.jpg
 tags:   Matrilineal
 ---
