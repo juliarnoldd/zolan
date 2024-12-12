@@ -34,4 +34,22 @@ Some examples include:
 -	Owning land and property
 -	Having full rights to their children
 
-The benefits of matrilineality manifests itself in different ways. For example, one study done on both the matrinileal Mosuo and the patrilineal Mosuo demonstrates how women in matrilineal society are more educated than their patrilineal counterparts. On top of that, their friendship networks were more connected, and included many more cross-gender friendships than the women of the patrilineal Mosuo. These friendships may reflect the greater value placed on women in matrilineal societies, where men are raised to view women as equals rather than as inferior. 
+These practices can be seen as unique to Westerner eyes, but also in the eyes of those who practice the same religion.
+To explain, the Mosuo follow two religions – Tibetan Buddhism and Daba – their native religion involving animism and ancestor worship.
+Tibetan Buddhism is by far the predominant religion practiced by the Mosuo people, with Daba coming into play primarily for the maintenance of Mosuo culture and language. 
+
+However, what is interesting is that historically, studies have shown that in Tibetan Buddhism is primarily based on patriarchal societal norms. These societal norms include a lack of control for women in many spheres of life, with aspects like hierarchal structure prevailing – meaning that monks ultimately have more authority than nuns. 
+
+Other themes frequently described by women are:
+-	Bodily Suffering
+-	Domestic responsibilities
+-	Struggles to assert agency
+
+Therefore, while Tibetan Buddhism is practiced by the Mosuo, with women carrying Buddhist prayer wheels, Buddhist monks walking the streets, and even homes containing a statue of a Buddhist God above the cooking fire, this society approaches religious life with a more egalitarian view. 
+
+This can be seen in many ways around Mosuo society, with women having economic independence, control over property and wealth, and even personal autonomy in choosing a partner as marriage is not pressured upon them. They also hold more central roles in religious and spiritual practices – something that is traditionally reserved for monks.
+
+Therefore, we see resistance to traditional gender roles in Mosuo society through their ability to empower women. While they do engage in Tibetan Buddhist traditions, their ability to maintain their own customs of women in control over family structures, property and spiritual practices, shows their strength in community values and is a clear representation of why they have survived for so long 
+
+
+
