@@ -38,10 +38,11 @@ Some examples include:
 -	Having full rights to their children
 
 These practices can be seen as unique to Westerner eyes, but also in the eyes of those who practice the same religion.
+
 To explain, the Mosuo follow two religions – **Tibetan Buddhism and Daba** – their native religion involving animism and ancestor worship.
 Tibetan Buddhism is by far the predominant religion practiced by the Mosuo people, with Daba coming into play primarily for the maintenance of Mosuo culture and language. 
 
-### Religion their own way ###
+### Religion Their Own Way ###
 
 What's interesting is that historically, studies have shown that in Tibetan Buddhism is primarily based on patriarchal societal norms. These societal norms include a lack of control for women in many spheres of life, with aspects like hierarchal structure prevailing – meaning that monks ultimately have more authority than nuns. 
 
@@ -58,7 +59,9 @@ Therefore, while Tibetan Buddhism is practiced by the Mosuo, with women carrying
 
 This can be seen in many ways around Mosuo society, with women having economic independence, control over property and wealth, and even personal autonomy in choosing a partner as marriage is not pressured upon them. They also hold more central roles in religious and spiritual practices – something that is traditionally reserved for monks.
 
-And so, we see resistance to traditional gender roles in Mosuo society through their ability to empower women. While they do engage in Tibetan Buddhist traditions, their ability to maintain their own customs of women in control over family structures, property, and spiritual practices, shows their strength in community values and is a clear representation of why they have survived for so long 
+And so, we see resistance to traditional gender roles in Mosuo society through their ability to empower women. While they do engage in Tibetan Buddhist traditions, their ability to maintain their own customs of women in control over family structures, property, and spiritual practices, shows their strength in community values and is a clear representation of why they have survived for so long. 
 
+For me, reading about the Kingdom of Women was empowering. As one of the most well-documented matrilineal societies, those who have written about Mosuo culture typically do so in reverance for their unique ability to live a life so true to themselves. They have fought to maintain a society free from the restraints of patriarchal conceptions of how women and men are supposed to behave, and have created a system that works for **them**. As an outsider and a Westerner, it is not up to me to decide what is right and what is wrong, but having the privelege to learn about a society that is different than my own is truly a gift. 
 
+I have so much respect for this Kingdom of Women.
 
