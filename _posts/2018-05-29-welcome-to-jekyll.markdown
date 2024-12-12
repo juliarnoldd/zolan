@@ -35,7 +35,7 @@ Some examples include:
 -	Having full rights to their children
 
 These practices can be seen as unique to Westerner eyes, but also in the eyes of those who practice the same religion.
-To explain, the Mosuo follow two religions – Tibetan Buddhism and Daba – their native religion involving animism and ancestor worship.
+To explain, the Mosuo follow two religions – **Tibetan Buddhism and Daba** – their native religion involving animism and ancestor worship.
 Tibetan Buddhism is by far the predominant religion practiced by the Mosuo people, with Daba coming into play primarily for the maintenance of Mosuo culture and language. 
 
 Although, what is interesting is that historically, studies have shown that in Tibetan Buddhism is primarily based on patriarchal societal norms. These societal norms include a lack of control for women in many spheres of life, with aspects like hierarchal structure prevailing – meaning that monks ultimately have more authority than nuns. 
