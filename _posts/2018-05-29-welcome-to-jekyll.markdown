@@ -21,6 +21,9 @@ As we saw with the Minangkabau people, there are certain qualities that define e
 
 The Mosuo practice what are known as walking marriages, whereas Mosuo females can choose their lovers and have as many or as few as they want in their lifetime. They do not have any words equivalent to *husband* or *father* like we have in english terms. Instead, if they decide to have a long-term partner (that is by no means permanent), they are known as *axias*. These men will fish, take care of animals, and care for their own families before going to visit their women (and sometimes children) at nighttime. They are allowed to visit women for a night of pleasure, but then are expected to leave in the morning. 
 
+![]({{site.baseurl}}/images/MarriageBridge.jpg)
+*Walking Marriage Bridge”, where young Mosuo boys and girls would come to find their dates*
+
 On top of that, babies are reared exclusively in the woman’s family as men are not expected to support their children. In fact, it is not uncommon for children to be unaware of who their father is. 
 
 These facets of Mosuo life are often what grabs the attention of the public as it is so different from what most of the world is used to.
