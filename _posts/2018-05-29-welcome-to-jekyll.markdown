@@ -49,6 +49,10 @@ Other themes frequently described by women are:
 
 Therefore, while Tibetan Buddhism is practiced by the Mosuo, with women carrying Buddhist prayer wheels, Buddhist monks walking the streets, and even homes containing a statue of a Buddhist God above the cooking fire, this society approaches religious life with a more egalitarian view. 
 
+![]({{site.baseurl}}/images/MosuoBud.jpg)
+*Mosuo Woman Practicing Buddhism*
+
+
 This can be seen in many ways around Mosuo society, with women having economic independence, control over property and wealth, and even personal autonomy in choosing a partner as marriage is not pressured upon them. They also hold more central roles in religious and spiritual practices – something that is traditionally reserved for monks.
 
 And so, we see resistance to traditional gender roles in Mosuo society through their ability to empower women. While they do engage in Tibetan Buddhist traditions, their ability to maintain their own customs of women in control over family structures, property and spiritual practices, shows their strength in community values and is a clear representation of why they have survived for so long 
