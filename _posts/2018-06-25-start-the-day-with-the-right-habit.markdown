@@ -29,7 +29,7 @@ To explain, the distribution of inheritance is organized into two categories: **
 
 The involvement of women in handling inheritance is mandatory and it actually cannot proceed without them. For example, if a husband were to attempt property acquisition, they would not be able to do so without their wife.
 
-### Minangkabau and the power to promote gender equality
+### Minangkabau And The Power To Promote Gender Equality
 
 Gender equality is something that is seen as more accessible in matrilineal societies. This can be for various reasons, but rests mostly on the importance surrounding women and the value that is placed on them in society. When thinking about women in relation to the more mainstream cultural tendencies of other places around the world, women have historically been pushed to the margins. 
 
