@@ -15,7 +15,7 @@ In my research, there were many aspects of their culture that interested me, and
 
 Firstly, let’s take a look at the many distinguishing features of the matrilineal system practiced by the Minangkabau:
 
-For one, the maternal line is the one that organizes descent and the formation of ethnic lines – so in other words, kinship systems and family unity is established through the mother’s side.
+For one, the maternal line is the one that organizes descent and the formation of ethnic lines – so in other words, kinship systems and family units are established through the mother’s side.
 
 Additionally, the residence pattern is matrilocal or dwi-local – whereas the family will reside at the wife’s place and at the husband’s parent’s place.
 
