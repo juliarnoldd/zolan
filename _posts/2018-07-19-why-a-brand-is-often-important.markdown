@@ -29,7 +29,7 @@ When I was doing my research, there were three societies in particular that caug
 
 ### The Minangkabau, The Mosuo, and The Tuareg
 
-As I dove deeper into these scoieties, I couldn't help but notice that their interpretation of religion was somewhat different than other cultures. This made me wonder - how do they manage to uphold matriarchal values while being devoted to religions that are historically rooted in patriarchy? 
+As I dove deeper into these scoieties, I couldn't help but notice that their interpretation of religion was somewhat different than other cultures. This made me wonder - how do they manage to uphold matrilineal values while being devoted to religions that are historically rooted in patriarchy? 
 
 Don't worry, we will get to those answers.
 
