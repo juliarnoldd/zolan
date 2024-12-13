@@ -27,6 +27,9 @@ What’s more is that Tuareg women were poets and musicians. This is something t
 
 Another important element of Tuareg life that demonstrates a shift in societal standards is the wearing of the veil. In Tuareg society, it is men who are known to wear the veil and women who do not. 
 
+![]({{site.baseurl}}/images/Tuaregman.jpg)
+*Veiled Tuareg Man*
+
 Although, when we get to the aspect of rights of succession, we start to see common matrilineal themes emerge. 
 
 In traditional Tuareg society, the following rights were transmitted – and were done so by matrilineal descent. 
