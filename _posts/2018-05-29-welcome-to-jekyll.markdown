@@ -44,7 +44,7 @@ Tibetan Buddhism is by far the predominant religion practiced by the Mosuo peopl
 
 ### Religion Their Own Way ###
 
-What's interesting is that historically, studies have shown that Tibetan Buddhism is primarily based on patriarchal societal norms. These societal norms include a lack of control for women in many spheres of life, with aspects like hierarchal structure prevailing – meaning that monks ultimately have more authority than nuns. 
+What's interesting is that historically, studies have shown that Tibetan Buddhism is primarily based on patriarchal societal norms. These societal norms include a lack of control for women in many spheres of life, with aspects like hierarchal structure prevailing. This manifests itself in ways like monks ultimately having more authority than nuns. 
 
 Other themes frequently described by women are:
 -	Bodily Suffering
