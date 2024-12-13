@@ -60,3 +60,10 @@ You see, the Tuareg observe a different kind of matrilineality whereas women hav
 
 Yet, they have never had access to direct power under the Islamic faith. Abiding by some patriarchal aspects of the Qur’an, they observe a combination of male authority with the freedoms allowed to women. This is most evident by considering that women can take part in tribal decision-making, but they ultimately can’t be leaders. 
 
+With that being said, the Tuareg are yet another example of a group of people that have created a way of life that works for them. 
+
+A main theme that emerges throughout the analysis of matrilineal societies and their relationship to religion is therefore the concept of **interpretation**. While these three groups of people are unique, they are tied together by the power they allow women to have in society, and they do it by deciding how they want to interpret their religious teeachings.
+
+It has been eye opening for me to dive deeper into these three distinct societies, being able to look further than my own backyard. Even further, I find it so enriching as a woman to learn about societies that **value** women and hold true to their beliefs in equality even as the world changes. As someone who lives in North America, women's rights have been on the forfront of many conversations lately, and at times, it seems like we are moving backwards.
+
+I hope we can learn from societies like the Minangkabau, The Mosuo, and the Tuareg, and be steadfast in the the value we place on women. We are not going anywhere. 
