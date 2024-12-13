@@ -49,6 +49,9 @@ In fact, in Tuareg society, wealth is delineated according to Qur'anic law. This
 
 ## A Different Form of Matriline ##
 
+![]({{site.baseurl}}/images/Tuaregfamily.jpg)
+*A Tuareg Family*
+
 With this is mind, let’s refer back to our discussion about the Minangkabau and their interpretation of the Muslim faith. In their society, they use Qur’anic principles, however they choose to interpret the teachings in different ways than those of the patriarchal standard. 
 
 We see a version of that here.
