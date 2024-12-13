@@ -15,7 +15,7 @@ I am talking about real societies where women are powerful and respected. Places
 
 Have you ever thought about how there are people across the world who live completely different lives than the one you do? 
 
-This question got me thinking about how diverse the world really is and how there must be places out there where women are seen differently than they are here. As someone who has grown up surrounded by a patriarchal society that is so rooted in values and boxes that women are supposed to fit into, it got me thinking about whether those boxes exist everywhere, or if certain societies have a different set of boxes they push onto their own definition of gender roles. This led me wonder - what does the opposite of patriarchy look like? 
+This question got me thinking about how diverse the world really is and how there must be places out there where women are seen differently than they are here. As someone who has grown up surrounded by a patriarchal society that is so rooted in values and boxes that women are supposed to fit into, it got me thinking about whether those boxes exist everywhere, or if certain societies have a different set of boxes they push onto their own set of gender roles. This led me wonder - what does the opposite of patriarchy look like? 
 
 What I soon discovered is that it manifests itself in what are known as matriarchal and matrilinieal societies. 
 
