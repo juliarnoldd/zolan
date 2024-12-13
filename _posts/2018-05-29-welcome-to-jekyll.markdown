@@ -7,7 +7,7 @@ tags:   Matrilineal
 ---
 Hi friends!
 
-Continuing on with our discussion about Matrilineal societies, today we have the privilege of exploring the intricacies of the **Mosuo people of China**. 
+Continuing on with our discussion about matrilineal societies, today we have the privilege of exploring the intricacies of the **Mosuo people of China**. 
 
 ## The Kingdom of Women ##
 
