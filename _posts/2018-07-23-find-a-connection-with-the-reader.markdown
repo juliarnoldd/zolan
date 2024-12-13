@@ -23,7 +23,7 @@ Firstly, the Tuareg are primarily comprised of those who follow a Muslim faith, 
 
 Traditionally, Tuareg women have played prominent roles in social life and were responsible for the affairs of their camp. This includes owning livestock, managing goat herds, educating children, preparing food, and many other aspects of organization. They also know freedom when it comes to love and marriage – a stark difference compared to other Arab women.
 
-What’s more is that Tuareg women have been knowns to be poets and musicians. This is something that is not often acknowledged when thinking about the dimensions of women and their roles in life. Dating back hundreds of years, Tuareg women have been composing and recording songs, even drawing in men from different villages to come watch their performances. 
+What’s more is that Tuareg women have been known to be poets and musicians. This is something that is not often acknowledged when thinking about the dimensions of women and their roles in life. Dating back hundreds of years, Tuareg women have been composing and recording songs, even drawing in men from different villages to come watch their performances. 
 
 Another important element of Tuareg life that demonstrates a shift in societal standards is the wearing of the veil. In Tuareg society, it is men who are known to wear the veil and women who do not. 
 
