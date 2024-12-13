@@ -5,47 +5,52 @@ date:   2024-12-05 15:01:35 +0300
 image:  Tuareg.jpg
 tags:   Matrilineal
 ---
-Yeah, and if you were the pope they'd be all, "Straighten your pope hat." And "Put on your good vestments." Noooooo! Perhaps, but perhaps your civilization is merely the sewer of an even greater society above you!
+Our last stop this week on our exploration of matrilineality takes us to the **Tuareg** people.
 
-You lived before you met me?! Ow, my spirit! Humans dating robots is sick. __You people wonder why I'm still single?__ *It's 'cause all the fine robot sisters are dating humans!* I guess if you want children beaten, you have to do it yourself.
+Once again, while there can be multiple overarching concepts and aspects of life, this group demonstrates how there is no one stop shop for all things matrilineal.
 
-## Are you crazy? I can't swallow that.
+The Tuareg are their own distinct people, with a rich history that is complicated and complex.
 
-Oh, I don't have time for this. I have to go and buy a single piece of fruit with a coupon and then return it, making people wait behind me while I complain. Meh. So, how 'bout them Knicks? Also Zoidberg.
+## Who Are They? ##
 
-1. We need rest. The spirit is willing, but the flesh is spongy and bruised.
-2. Fry, we have a crate to deliver.
-3. Have you ever tried just turning off the TV, sitting down with your children, and hitting them?
+With a vast population of roughly 2 million, the Tuareg are a nomadic people located throughout the Sahara. They stretch from southwestern Libya to Southern Algeria, Mali, Niger, Burkina Faso, and even the far North of Nigeria. 
 
-### Why not indeed!
+While there are many societies that make up the Tuareg people, what we see is that as tribes developed through time, some remained matrilineal while some adopted paternal succession. 
 
-Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. I don't 'need' to drink. I can quit anytime I want! Soothe us with sweet lies. Bender?! You stole the atom. You don't know how to do any of those.
+We will be discussing the origins and focusing on those that remained matrilineal. However, as they are the majority, we won’t be focusing on the specific names of the clans. 
 
-* Shinier than yours, meatbag.
-* This is the worst part. The calm before the battle.
-* Ooh, name it after me!
+Firstly, the Tuareg are primarily comprised of those who follow a Muslim faith, yet they have a rich history of practicing matrilineality, something that differs from their Arab counterparts. 
 
-Say what? Throw her in the brig. Hey, you add a one and two zeros to that or we walk! You guys aren't Santa! You're not even robots. How dare you lie in front of Jesus? Ow, my spirit! Who's brave enough to fly into something we all keep calling a death sphere?
+Traditionally, Tuareg women have played prominent roles in social life and were responsible for the affairs of their camp. This included owning livestock, managing goat herds, educating children, preparing food, and many other aspects of organization. They also knew freedom when it came to love and marriage – a stark difference compared to other Arab women.
 
-Hey, you add a one and two zeros to that or we walk! You won't have time for sleeping, soldier, not with all the bed making you'll be doing. It's okay, Bender. I like cooking too. Hey, what kinda party is this? There's no booze and only one hooker.
+What’s more is that Tuareg women were poets and musicians. This is something that is not often acknowledged when thinking about the dimensions of women and their roles in life. Tuareg women would compose and record songs, even drawing in men from different villages to come watch their performances. 
 
-![]({{ site.baseurl }}/images/07.jpg)
-*Minimalism*
+Another important element of Tuareg life that demonstrates a shift in societal standards is the wearing of the veil. In Tuareg society, it is men who are known to wear the veil and women who do not. 
 
-Ummm…to eBay? But I know you in the future. I cleaned your poop. I'm just glad my fat, ugly mama isn't alive to see this day. My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards.
+Although, when we get to the aspect of rights of succession, we start to see common matrilineal themes emerge. 
 
-Your best is an idiot! Fry, you can't just sit here in the dark listening to classical music. And remember, don't do anything that affects anything, unless it turns out you were supposed to, in which case, for the love of God, don't not do it!
+In traditional Tuareg society, the following rights were transmitted – and were done so by matrilineal descent. 
 
-You, a bobsleder!? That I'd like to see! I'm Santa Claus! There's no part of that sentence I didn't like! Noooooo! I can explain. It's very valuable.
+-	Group membership
+-	Succession to political office
+-	Access to land rights
+-	Inheritance of property and residency
 
-I'm Santa Claus! Is the Space Pope reptilian!? Who's brave enough to fly into something we all keep calling a death sphere? I had more, but you go ahead.
+However, what differs from other matrilineal societies is that it is still men who are mainly in charge of these things, and the right to succeed is transmitted alphabetically through the line of brothers. This passes down then to mother’s sister’s sons and ultimately to the sister’s sons. 
 
-It doesn't look so shiny to me. Kif might! You guys aren't Santa! You're not even robots. How dare you lie in front of Jesus? Oh, but you can. But you may have to metaphorically make a deal with the devil. And by "devil", I mean Robot Devil. And by "metaphorically", I mean get your coat.
+Still with me?
 
-Check it out, y'all. Everyone who was invited is here. Anyone who laughs is a communist! You're going to do his laundry? Michelle, I don't regret this, but I both rue and lament it.
+In this sense, we see a stark shift from those like the Mosuo who have women in control of things like land and money.
 
-Bender, we're trying our best. I daresay that Fry has discovered the smelliest object in the known universe! Oh, you're a dollar naughtier than most. Hi, I'm a naughty nurse, and I really need someone to talk to. $9.95 a minute.
+In fact, in Tuareg society, wealth is delineated according to Quranic law. This means that while they recognize the right of women to inherit, they primarily direct it towards males using the patrilineal line. An example of this would be a daughter receiving one share of inheritance while a son receives twice as much. 
 
-You, a bobsleder!? That I'd like to see! No! The kind with looting and maybe starting a few fires! Good news, everyone! There's a report on TV with some very bad news! When I was first asked to make a film about my nephew, Hubert Farnsworth, I thought "Why should I?" Then later, Leela made the film. But if I did make it, you can bet there would have been more topless women on motorcycles. Roll film!
+## A Different Form of Matriline ##
 
-Eeeee! Now say "nuclear wessels"! Why did you bring us here? Yeah, and if you were the pope they'd be all, "Straighten your pope hat." And "Put on your good vestments." That's the ONLY thing about being a slave.
+With this is mind, let’s refer back to our discussion about the Minangkabau and their interpretation of the Muslim faith. In their society, they use Qur’anic principles, however they choose to interpret the teachings in different ways than those of the patriarchal standard. 
+
+We see a version of that here.
+
+You see, the Tuareg, on the other hand, observe a different kind of matrilineality whereas women have freedoms that other Arab women do not have. They regard themselves as men’s equals, marry at will, serve as the heads of their camps, and speak in council. They are allowed to go when and where they please, they can teach, have property, and run the home.
+
+Yet, they have never had access to direct power under the Islamic faith. Abiding by some patriarchal aspects of the Qur’an, they observe a combination of male authority with the freedoms allowed to women. This is most evident by considering that women can take part in tribal decision-making, but they ultimately can’t be leaders. 
+
