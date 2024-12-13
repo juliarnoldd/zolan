@@ -39,7 +39,7 @@ In traditional Tuareg society, the following rights were transmitted by matrilin
 -	Access to land rights
 -	Inheritance of property and residency
 
-However, what differs from other matrilineal societies is that it is still men who are mainly in charge of these things, and the right to succeed is transmitted alphabetically through the line of brothers. This passes down then to mother’s sister’s sons and ultimately to the sister’s sons. 
+However, what differs from other matrilineal societies is that it is still men who are mainly in charge of these things, and the right to succeed is transmitted alphabetically through the line of brothers. This passes down then to the mother’s sister’s sons and ultimately to the sister’s sons. 
 
 Still with me?
 
