@@ -13,7 +13,7 @@ The Tuareg are their own distinct people, with a rich history that is complicate
 
 ## Who Are They? ##
 
-With a vast population of roughly 2 million, the Tuareg are a nomadic people located throughout the Sahara. They stretch from southwestern Libya to Southern Algeria, Mali, Niger, Burkina Faso, and even the far North of Nigeria. 
+With a vast population of roughly 2 million, the Tuareg are a nomadic people located throughout the Sahara. They stretch from Southwestern Libya to Southern Algeria, Mali, Niger, Burkina Faso, and even the far North of Nigeria. 
 
 While there are many societies that make up the Tuareg people, what we see is that as tribes developed through time, some remained matrilineal while some adopted paternal succession. 
 
