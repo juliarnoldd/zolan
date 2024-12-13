@@ -22,8 +22,12 @@ It can sometimes seem impossible to imagine an alternate reality where women are
 
 Doesn't that sound incredible? 
 
-When I was doing my research, there were three societies in particular that caught my eye.
+When I was doing my research, there were three societies in particular that caught my eye. 
 
 ### The Minangkabau, The Mosuo, and The Tuareg
+
+As I dove deeper into these scoieties, I couldn't help but notice that their interpretation of religion was somewhat different than other cultures. This made me wonder - how do they manage to uphold matriarchal values while being devoted to religions that are historically rooted in patriarchy? 
+
+Don't worry, we will get to those answers.
 
 Stay tuned throughout the week as I take you on a journey through faith, exploring the ins and outs of these three complex socities. Maybe we all have something to learn from them :)
