@@ -39,7 +39,7 @@ Some examples include:
 
 These practices can be seen as unique to Westerner eyes, but also in the eyes of those who practice the same religion.
 
-To explain, the Mosuo follow two religions – **Tibetan Buddhism and Daba** – their native religion involving animism and ancestor worship.
+To explain, the Mosuo follow two religions – **Tibetan Buddhism** and Daba – their native religion involving animism and ancestor worship.
 Tibetan Buddhism is by far the predominant religion practiced by the Mosuo people, with Daba coming into play primarily for the maintenance of Mosuo culture and language. 
 
 ### Religion Their Own Way ###
