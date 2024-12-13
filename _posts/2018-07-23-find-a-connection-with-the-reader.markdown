@@ -15,9 +15,9 @@ The Tuareg are their own distinct people, with a rich history that is complicate
 
 With a vast population of roughly 2 million, the Tuareg are a nomadic people located throughout the Sahara. They stretch from Southwestern Libya to Southern Algeria, Mali, Niger, Burkina Faso, and even the far North of Nigeria. 
 
-While there are many societies that make up the Tuareg people, what we see is that as tribes developed through time, some remained matrilineal while some adopted paternal succession. 
+For the hundreds of years, different societies of Tuareg people formed throughout many different geographic locations. These tribes developed their own versions of Tuareg society and while most remained matrilineal, there were some that adopted paternal succession. 
 
-We will be discussing the origins and focusing on those that remained matrilineal. However, as they are the majority, we won’t be focusing on the specific names of the clans. 
+For our purposes, we will be focusing on the majority - the matrilineal Tuareg societies.
 
 Firstly, the Tuareg are primarily comprised of those who follow a Muslim faith, yet they have a rich history of practicing matrilineality, something that differs from their Arab counterparts. 
 
