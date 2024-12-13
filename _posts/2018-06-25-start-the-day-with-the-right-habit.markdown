@@ -56,7 +56,7 @@ In attempting to gain more knowledge on how gender is approached in Minangkabau 
 
 By reading the chapter titled “The Qur’an and Woman,” it became clear to me that gender roles in the Qur’an can be traced back to the understanding of women in relation to men. This text explains that God has intimacy with both men and women, and that female figures like Mary, Bilqis, and Zulaykha demonstrate the importance of women in the Muslim faith.
 
-However, this answer didn’t exactly satisfy me. When thinking about the depiction of women in the Qur’an, I do believe there are examples that demonstrate how they are theoretically equal with men. Yet, after doing my research, it is clear that this is not shown in practice. 
+However, this answer didn’t exactly satisfy me. When thinking about the depiction of women in the Qur’an, I do believe there are examples that demonstrate how they are theoretically equal with men. Yet, after doing more research, it is clear that this is not shown in practice. 
 
 In fact, the treatment of women is often dictated by the interpretation of Allah’s word derived by each individual community. The traditional and conservative notion that women are expected to care for the home and serve not only their children, but their husbands as well, plays a very large role in perpetuating the conceived gender roles that women are supposed to adhere to in Muslim society. 
 
