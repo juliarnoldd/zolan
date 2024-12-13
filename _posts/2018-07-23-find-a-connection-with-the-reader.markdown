@@ -42,7 +42,7 @@ Still with me?
 
 In this sense, we see a stark shift from those like the Mosuo who have women in control of things like land and money.
 
-In fact, in Tuareg society, wealth is delineated according to Quranic law. This means that while they recognize the right of women to inherit, they primarily direct it towards males using the patrilineal line. An example of this would be a daughter receiving one share of inheritance while a son receives twice as much. 
+In fact, in Tuareg society, wealth is delineated according to Qur'anic law. This means that while they recognize the right of women to inherit, they primarily direct it towards males using the patrilineal line. An example of this would be a daughter receiving one share of inheritance while a son receives twice as much. 
 
 ## A Different Form of Matriline ##
 
@@ -50,7 +50,7 @@ With this is mind, let’s refer back to our discussion about the Minangkabau an
 
 We see a version of that here.
 
-You see, the Tuareg, on the other hand, observe a different kind of matrilineality whereas women have freedoms that other Arab women do not have. They regard themselves as men’s equals, marry at will, serve as the heads of their camps, and speak in council. They are allowed to go when and where they please, they can teach, have property, and run the home.
+You see, the Tuareg observe a different kind of matrilineality whereas women have freedoms that other Arab women do not have. They regard themselves as men’s equals, marry at will, serve as the heads of their camps, and speak in council. They are allowed to go when and where they please, they can teach, have property, and run the home.
 
 Yet, they have never had access to direct power under the Islamic faith. Abiding by some patriarchal aspects of the Qur’an, they observe a combination of male authority with the freedoms allowed to women. This is most evident by considering that women can take part in tribal decision-making, but they ultimately can’t be leaders. 
 
