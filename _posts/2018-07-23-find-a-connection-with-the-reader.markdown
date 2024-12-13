@@ -64,6 +64,6 @@ With that being said, the Tuareg are yet another example of a group of people th
 
 A main theme that emerges throughout the analysis of matrilineal societies and their relationship to religion is therefore the concept of **interpretation**. While these three groups of people are unique, they are tied together by the power they allow women to have in society, and they do it by deciding how they want to interpret their religious teeachings.
 
-It has been eye opening for me to dive deeper into these three distinct societies - being able to look beyond my own backyard. Even further, I find it so enriching as a woman to learn about societies that **value** women and hold true to their beliefs in equality even as the world changes. As someone who lives in North America, women's rights have been on the forefront of many conversations lately, and at times, it seems like we are moving backwards.
+It has been eye opening for me to dive deeper into these three distinct societies - being able to look beyond my own backyard. I find it so enriching as a woman to learn about societies that **value** women and hold true to their beliefs in equality even as the world changes. As someone who lives in North America, women's rights have been on the forefront of many conversations lately, and at times, it seems like we are moving backwards.
 
 I hope we can learn from societies like the Minangkabau, The Mosuo, and the Tuareg, and be steadfast in the the value we place on women. We are not going anywhere. 
