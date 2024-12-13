@@ -58,7 +58,7 @@ We see a version of that here.
 
 You see, the Tuareg observe a different kind of matrilineality whereas women have freedoms that other Arab women do not have. They regard themselves as men’s equals, marry at will, serve as the heads of their camps, and speak in council. They are allowed to go when and where they please, they can teach, have property, and run the home.
 
-Yet, they have never had access to direct power under the Islamic faith. Abiding by some patriarchal aspects of the Qur’an, they observe a combination of male authority with the freedoms allowed to women. This is most evident by considering that women can take part in tribal decision-making, but they ultimately can’t be leaders. 
+Yet, they have never had access to direct power under the Islamic faith. Abiding by some patriarchal aspects of the Qur’an, they observe a combination of male authority with certain freedoms allowed to women. This is displayed most clearly in the fact that women can take part in tribal decision-making, but they ultimately can’t be leaders. 
 
 With that being said, the Tuareg are yet another example of a group of people that have created a way of life that works for them. 
 
